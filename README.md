@@ -12,7 +12,7 @@
 
 - 💬 Ask me about **anything**
 
-- 📫 How to reach me **celings@st.noorderpoort.nl**
+- 📫 How to reach me **dm on LinkedIn**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
